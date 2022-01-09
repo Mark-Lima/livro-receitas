@@ -1,4 +1,4 @@
-# **Empadão de Calabresa**
+# **Empadão de Calabresa** 🥧
 
 ## Ingredientes para a massa:
 * 1 kg de farinha de trigo
